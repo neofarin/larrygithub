@@ -1,5 +1,5 @@
 # Larry Plotter
 
-Esta saga de libros cuentan la historia de un hacker excpecional
+Esta saga de libros cuentan la historia Larry Potter, de un hacker excpecional XD
 
 **Neofarin**
